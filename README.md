@@ -6,3 +6,7 @@ https://tome.app/rauldegrandis/bacco-e-mida-un-viaggio-epico-nella-mitologia-gre
 deutsch
 
 https://tome.app/h-5720/das-neue-museum-berlins-eine-reise-durch-die-zeit-cli8gqrho3nrd7n3e2eozlslu
+
+Umanità e Tecnologia
+
+https://docs.google.com/presentation/d/1tORvBZSUYmrldiLjxQStlrKA2eUFHCQM0rSspnBsPxQ/edit?usp=sharing
